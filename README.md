@@ -42,7 +42,7 @@
 
 - 📧 **Email:** kingmandigitalcybernetwork@gmail.com
 - 🌐 **Website:** [kingman37-net.github.io/kingman-digital-website](https://kingman37-net.github.io/kingman-digital-website/)
-- 📱 **TikTok:** [@kingman_ke](https://tiktok.com/@kingman_ke)
+- 📱 **INSTAGRAM:** [@kingman.254k](https://www.instagram.com/kingman.254k)
 - 🐙 **GitHub:** [Kingman37-net](https://github.com/Kingman37-net)
 
 ---
