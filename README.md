@@ -41,7 +41,7 @@
 ## 🌍 Connect With Me
 
 - 📧 **Email:** kingmandigitalcybernetwork@gmail.com
-- 🌐 **Website:** [kingman37-net.github.io/kingman-digital-website](https://kingman37-net.github.io/kingman-digital-website/)
+- 🌐 **Website:** [https://kingmandigital.co.ke/](https://kingmandigital.co.ke/)
 - 📱 **INSTAGRAM:** [@kingman.254k](https://www.instagram.com/kingman.254k)
 - 🐙 **GitHub:** [Kingman37-net](https://github.com/Kingman37-net)
 
