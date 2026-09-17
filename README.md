@@ -14,7 +14,7 @@ Silence became my shield. Patience became my sword. Strategy became my language.
 
 > "You don't have to be seen to make a difference — you just have to be real."
 
-Full life story — *From The Streets To Global Connection* — is documented in my private vault:`[ABOUT_CTO_KINGMAN_KE](https://github.com/Kingman37-net/kdcn-private-vault)` (Private access only).
+Full life story — *From The Streets To Global Connection* — is documented in my private vault:[ABOUT_CTO_KINGMAN_KE](https://github.com/Kingman37-net/kdcn-private-vault) (Private access only).
 
 ## 🛡️ What I Do
 
